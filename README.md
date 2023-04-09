@@ -10,7 +10,7 @@
 - 🤔 Looking for help with finding a multi-hat remote full-time position
 - 💬 Ask me about *Futures*, *Systems Thinking*, *data analytics*, *strategic planning*
 - 📫 How to reach me: [linktree](https://linktr.ee/sinasb)
-- ❔ Pronouns: he/him
+- ❔ Pronouns: he/him/his
 - 😄 Fun fact: I know that I don't know!
 
 #### May there be light and love for all 🕯️
