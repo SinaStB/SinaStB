@@ -4,7 +4,7 @@
 **SinaStB/SinaStB** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 -->
 
-- 🛠️ Currently working on strategic planning and marketing
+- 🛠️ Currently working on strategic planning and marketing projects
 - 🌱 Learning more about *UI/UX*
 - 🔭 Open to collaborate on interdisciplinary projects with long-lasting social impact
 - 🤔 Looking for help in finding an interesting full-time remote position
