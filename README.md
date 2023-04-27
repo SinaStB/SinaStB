@@ -11,6 +11,6 @@
 - 💬 Ask me about *Futures*, *systems thinking*, *data analytics*, *strategic planning*
 - 📫 How to reach me: [linktree](https://linktr.ee/sinasb)
 - ❔ Pronouns: he/him/his
-- 😄 Fun fact: I know that I don't know!
+- 😄 Fun fact: I embrace the mystery of not knowing!
 
 #### May there be light and love for all 🕯️
