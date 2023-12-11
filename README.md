@@ -5,7 +5,7 @@
 -->
 
 - 🛠️ Currently working on strategic planning and marketing projects
-- 🌱 Learning more about *UI/UX*
+- 🌱 Learning more about *Product Management*
 - 🔭 Open to collaborate on interdisciplinary projects with long-lasting social impact
 - 🤔 Looking for help in finding an interesting full-time remote position
 - 💬 Ask me about *Futures*, *systems thinking*, *data analytics*, *strategic planning*
